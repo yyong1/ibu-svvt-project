@@ -1,1 +1,0 @@
-# ibu-svvt-project
